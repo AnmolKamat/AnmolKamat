@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **anmolrk096322@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16RZ4GARqlZrXBvszWSZcAp5GUz3X5vg1/view?usp=share_link](https://drive.google.com/file/d/16RZ4GARqlZrXBvszWSZcAp5GUz3X5vg1/view?usp=share_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/16RZ4GARqlZrXBvszWSZcAp5GUz3X5vg1/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
